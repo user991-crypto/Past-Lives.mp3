@@ -1,2 +1,13 @@
-# Past-Lives.mp3
+# Past-Lives.mp3.
 Hello, my cracked tablet is so damaged. 😭
+dont mess with it ok?
+
+
+
+
+......
+Prossecing.....
+[=================]
+Connecting...
+Device Name:KFNOWI    Device color: blue
+Connecting to device....
